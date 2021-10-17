@@ -20,10 +20,6 @@ If you want to contact me, you can find me on:
 
 🌷) Email: Devante.Mika@gmail.com
 
-🌷) Instagram: _Devantaye
-
-🌷) Twitter: Devantaye18
-
 ╚═══════════════════════════╝
 
 That's all from me! Thanks for stopping by~
