@@ -18,7 +18,7 @@ If you want to contact me, you can find me on:
 
 🌷) Discord: Devantaye#4446
 
-🌷) Email: Devante.Mika@gmail.com
+🌷) Email: elitemaster711@gmail.com
 
 ╚═══════════════════════════╝
 
