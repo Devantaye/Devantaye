@@ -3,7 +3,7 @@
 🌸 **Welcome to...  DEV'S GITHUB PROFILE <3** 🌸
 
 
-Hello, I'm Devantaye! _[Dev for short~]_ I'm a 
+Hello, I'm Devantaye! _[Dev for short]_ I'm a 
 software programmer, the worlds best support 
 main and an overall bad bitch <3 I'm currently 
 studying a bachelor of software engineering 
