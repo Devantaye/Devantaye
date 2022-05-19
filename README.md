@@ -10,15 +10,13 @@ studying a bachelor of software engineering
 and i'm vibing with life rn~ Feel free to hit
 me up if you need anything from me 
 
-[He/She/They] - I have no preference, so use any!
+[He/They]
 
 ╔═══════════════════════════╗
 
 If you want to contact me, you can find me on:
 
 🌷) Discord: Devantaye#4446
-
-🌷) Email: elitemaster711@gmail.com
 
 ╚═══════════════════════════╝
 
