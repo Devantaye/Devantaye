@@ -1,28 +1,11 @@
+**DEV'S GITHUB PROFILE** 💙 
 
+Devantaye - 20  |  AUT - Software Engineering | Ascendant in Valorant 💀
 
-🌸 **Welcome to...  DEV'S GITHUB PROFILE <3** 🌸
+=============================================
 
+![Mniv](https://user-images.githubusercontent.com/92656221/234157971-27ae79ce-f619-4630-9b31-7311aba5fe77.gif)
 
-Hello, I'm Devantaye! _[Dev for short]_ I'm a 
-software programmer, the worlds best support 
-main and an overall bad bitch <3 I'm currently 
-studying a bachelor of software engineering 
-and i'm vibing with life rn~ Feel free to hit
-me up if you need anything from me 
-
-[He/They]
-
-╔═══════════════════════════╗
-
-If you want to contact me, you can find me on:
-
-🌷) Discord: Devantaye#4446
-
-╚═══════════════════════════╝
-
-That's all from me! Thanks for stopping by~
-
-![Webp net-resizeimage (1)](https://user-images.githubusercontent.com/92656221/137608218-98099ff2-5ec1-48e3-99a1-ad74bfd7f9b5.png)
 
 
 
