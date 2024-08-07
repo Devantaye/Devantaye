@@ -1,6 +1,6 @@
 **DEV'S GITHUB PROFILE** 💙 
 
-Devantaye - 20  |  AUT - Software Engineering | Ascendant in Valorant 💀
+Devantaye - 20  |  AUT - Software Engineering 
 
 =============================================
 
